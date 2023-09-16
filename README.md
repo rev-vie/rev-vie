@@ -1,3 +1,5 @@
+
+
 - Was it the best you ever had?
 - Was it the worst? You'd never know
 - try to tell you what I think and play it off like it's a joke
@@ -21,21 +23,5 @@
 - I need an alibi to justify, somebody to blame
 - It's a halibut, party bitch, give it a name and say, "Hey, hey"
 
-- Na-na-na-na-na-na-na
-- Na-na-na-na-na-na
-- Na-na-na-na-na-na-na
-- Oh-oh, oh-oh, oh-oh
-- Na-na-na-na-na-na-na
-- Na-na-na-na-na-na
-- Na-na-na-na-na-na-na
-- Oh-oh, oh-oh, oh-oh
 
-- Na-na-na-na-na-na-na
-- Na-na-na-na-na-na
-- Na-na-na-na-na-na-na
-- Oh-oh, oh-oh, oh-oh
-- Na-na-na-na-na-na-na
-- Na-na-na-na-na-na
-- Na-na-na-na-na-na-na
-- Oh-oh, oh-oh, oh-oh
-  .
+ 
